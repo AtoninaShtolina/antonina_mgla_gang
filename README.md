@@ -28,6 +28,6 @@ ghwhkckjd~
 
 ![image is hear](https://pbs.twimg.com/profile_images/1173161429266030592/lJCNA_JC_400x400.jpg)
 
-[VK] (https://vk.com/feed)
+[VK](https://vk.com/feed)
 
 https://vk.com/feed
